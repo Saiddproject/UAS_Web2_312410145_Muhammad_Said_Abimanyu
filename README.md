@@ -365,7 +365,7 @@ https://e-inventory.xo.je/api/login
 
 **Klik di sini untuk menonton video presentasi**
 
-[Video yang telah saya buat](https://youtu.be/9uQiXpqV-Uo?si=c7yzhXpH_gIJtSrK)
+[Video yang telah saya buat klik disini](https://youtu.be/9uQiXpqV-Uo?si=c7yzhXpH_gIJtSrK)
 
 ### Isi Video
 
